@@ -4,7 +4,7 @@
 
 # .
 
-I'm alice! (feel free to call me by the skin i am! ex: pronto, or trident ^_^) 
+I'm alice! ( or feel free to call me by the skin i am! ex: pronto, or trident ^_^) 
 
 i am **16**! 
 
