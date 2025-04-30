@@ -21,6 +21,8 @@ i can be a pretty shy person, please be understanding of that and do be patient 
 
 i'm always open to **C+H**!! though i may not C+H you first unless i know you!
 
+If i'm set as away, or busy I may not be very talkative, due to being tired, or in a bad mood. Please interact with care! 
+
 i'm also a big fan of prontoarry (pronto x aradus) and Sparttide (Sparta x Trident) !! 
 i would love if you cuddled with me as aradus or sparta if im pronto or trident! ^_^
 
