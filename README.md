@@ -1,13 +1,13 @@
  ![Untitled18-20250606091336](https://github.com/user-attachments/assets/b71b0bcf-633a-49cb-81bb-ac0f02c59fa0)
 
-
-![image_2025-06-06_122159888](https://github.com/user-attachments/assets/4570d1fc-95c8-4d57-991b-e221d8cf365a)
-
 # .
 
 # "𝖯𝗋𝗈𝗇𝗍𝗈, 𝖯𝗋𝗈𝗇𝗍𝗈, 𝗋𝖾𝖺𝖽𝗂𝗇𝗀 𝗅𝗈𝗎𝖽 𝖺𝗇𝖽 𝖼𝗅𝖾𝖺𝗋."
 
 # .
+
+# ![image_2025-06-06_122159888](https://github.com/user-attachments/assets/03215eab-e10a-41af-96af-682c54aa0320)
+
  
 # 𝖶𝖾𝗅𝖼𝗈𝗆𝖾 𝗍𝗈 𝗆𝗒 𝗀𝗂𝗍𝗁𝗎𝖻! ﾉ♡
 
