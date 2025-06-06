@@ -10,7 +10,7 @@ i am **16**!
 
 i go by she/he/they/it
 
-and im bigender and lesbian!
+and im bigender and omniromantic!
 
 # .
 you most likely clicked here from my ponytown! 
@@ -23,7 +23,7 @@ i'm always open to **C+H**!! though i may not C+H you first unless i know you!
 
 If i'm set as away, or busy I may not be very talkative, due to being tired, or in a bad mood. Please interact with care! 
 
-i'm also a big fan of  zhoxinan, prontoarry (pronto x aradus) and Sparttide (Sparta x Trident) !! 
+i'm also a big fan of  zhoxinan, prontozho, prontoarry (pronto x aradus) and Sparttide (Sparta x Trident) !! 
 i would love if you cuddled with me as aradus or sparta if im pronto or trident! ^_^
 
 i go by **corpsegals** on every social! i'm very easy to find! ^_^
