@@ -1,4 +1,5 @@
-![image_2025-06-06_085407529](https://github.com/user-attachments/assets/f12f4257-82d1-4788-aaaa-8cada169c819)
+![image_2025-06-06_085439971](https://github.com/user-attachments/assets/faa9d68f-6c29-45cc-99a2-b2fe0270f6a2)
+
 
 
 # Welcome to my github!
