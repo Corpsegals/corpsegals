@@ -1,4 +1,5 @@
-![2025_04_21_0q9_Kleki](https://github.com/user-attachments/assets/5fd04e8e-4b67-41e9-8eea-c9f094072aef)
+![image_2025-06-06_085407529](https://github.com/user-attachments/assets/f12f4257-82d1-4788-aaaa-8cada169c819)
+
 
 # Welcome to my github!
 
